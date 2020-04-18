@@ -2,4 +2,4 @@
 
 Working application is available [here](https://cutt.ly/Mt7b1aD).
 
-Blog post on this work is available [here](https://cutt.ly/Gt778D1)
+Blog post on this work is available [here](https://cutt.ly/tamil-lyrics-blog)
